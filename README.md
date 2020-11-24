@@ -12,20 +12,18 @@ Olá! Bem vindo ao meu livro de receitas; :wave:
 
 - Bolo de Milho
 
-- Pão de Milho
-
 - Torta de Abacaxi
 
-- Pão de Forma
+  
+
+  
 
   
 
   
+
   
-  
-  
-  
-  
+
   
 
 
